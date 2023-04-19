@@ -10,7 +10,7 @@
  
  ## 
  
-#### 🚀   I'm Sales Representative in transition for Data Analyst | Data Science.
+#### 🚀   I'm Data Analyst | Data Science.
 #### 🇧🇷    Fortaleza/CE
   
 ##
